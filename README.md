@@ -1,0 +1,1 @@
+Iʼm a Usman Farooqi, UI Designer with over 10 years of experience in the field. Since I started, I have been designing apps, user interfaces, brand identities and websites for various global clients, working together with amazing people from all over the world. 
